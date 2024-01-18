@@ -1,0 +1,1 @@
+Awesome Game Idea Generator Want to create the next Best selling game? Get the ideas flowing! Put it on Kickstarter or Steam and make millions! Ok how about this... A Trains Game with Ninjas and robots, set in the wild west! A Pen by Nodws on CodePen. License.
